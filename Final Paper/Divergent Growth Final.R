@@ -1,4 +1,4 @@
-#Ayam Shrestha 
+#Andy Zheng
 #Final Paper 
 #Divergent Economic Growth 
 
